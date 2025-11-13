@@ -9,6 +9,6 @@
 - Compatible with all mobile devices and with a beautiful and pleasant user interface.
 
 
-💙 Let's do it.... [Bedimcode](https://www.youtube.com/@Bedimcode)
+💙 Let's do it.... [Marketing Internal](https://www.youtube.com/@Bedimcode)
 
 ![preview img](/preview.png)
